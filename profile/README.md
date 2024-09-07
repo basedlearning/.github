@@ -5,4 +5,4 @@
 - 🔧 Streamlining administrative tasks
 - 🚀 Helping schools level up
 
-Wanna see the magic? Visit basedlearning.org 🔥
+Wanna see the magic? Visit [basedlearning.org](https://basedlearning.org) 🔥
